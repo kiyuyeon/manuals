@@ -31,4 +31,5 @@
   
   [용인예술과학대학](http://www.ysc.ac.kr)
   
-  ![이미지 연습](http://kyrieko.dothome.co.kr/images/first.jpg)
+  ![이미지 연습](http://www.chemicalnews.co.kr/news/photo/202106/3636_10174_4958.jpg)
+  
